@@ -11,11 +11,9 @@
 ![](http://img15.poco.cn/mypoco/myphoto/20131222/13/54674565201312221327161684091444273_019.jpg)
 
 #Now,I'm a coder
-
-
-    先从交际说起吧，2015年是宅的一年，几乎每天泡在网上，所以，认识的朋友很少，认识的异性朋友Zero......
+先从交际说起吧，2015年是宅的一年，几乎每天泡在网上，所以，认识的朋友很少，认识的异性朋友Zero......
     
-    ![](http://imgsrc.baidu.com/forum/w%3D580/sign=497f232b800a19d8cb03840d03fb82c9/8794a4c27d1ed21b8b34547fad6eddc450da3fae.jpg)
+![](http://imgsrc.baidu.com/forum/w%3D580/sign=2dc2ade2b151f819f1250342eab64a76/3840aa64034f78f0e3e6b13a78310a55b1191cb2.jpg)
     
 
 
